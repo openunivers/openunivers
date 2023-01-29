@@ -1,1 +1,1 @@
-# aim to provide free cloud computer for free
+# aim to provide free cloud services for free
